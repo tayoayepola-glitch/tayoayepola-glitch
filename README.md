@@ -1,4 +1,4 @@
-# Hi 👋 I’m Tayo Ayepola-Glitch
+# Hi 👋 I’m Tayo Oladapo-Glitch
 
 I’m a **Quality & Food Safety professional** and **Public Health advocate** passionate about protecting consumers and promoting safer products globally.
 
